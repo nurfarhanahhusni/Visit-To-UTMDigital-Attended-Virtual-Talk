@@ -1,4 +1,4 @@
-![image](https://github.com/nurfarhanahhusni/Visit-To-UTMDigital-Attended-Virtual-Talk/assets/148424765/a783786b-468e-43fb-9d30-5284cdff0685)
+![VISIT to Utm digital](https://github.com/nurfarhanahhusni/Visit-To-UTMDigital-Attended-Virtual-Talk/assets/148424765/00513e9c-3170-4f8e-baf7-01f32f66401f)
 # Reflection 📝
 
 ## What I had gain from the visit ✨:
