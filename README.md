@@ -1,4 +1,6 @@
+![image](https://github.com/nurfarhanahhusni/Visit-To-UTMDigital-Attended-Virtual-Talk/assets/148424765/a783786b-468e-43fb-9d30-5284cdff0685)
 # Reflection 📝
+
 ## What I had gain from the visit ✨:
 The industry visit presents a valuable opportunity for UTM's students to examine both the internal and external facest of UTM Digital, particularly the services they offer.
 
